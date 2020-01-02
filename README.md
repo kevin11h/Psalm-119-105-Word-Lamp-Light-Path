@@ -1,2 +1,6 @@
 # Psalm-119-105-Word-Lamp-Light-Path
-Thy word is a lamp unto my feet, and a light unto my path. https://miro.medium.com/max/1080/1*cYauMjN9B74A5EIfsp-1zA.jpeg https://www.youtube.com/watch?v=miNYyUd92eE https://www.google.com/url?sa=i&amp;source=images&amp;cd=&amp;cad=rja&amp;uact=8&amp;ved=2ahUKEwiCpemL_OPmAhUhHjQIHceHA9cQjhx6BAgBEAI&amp;url=https%3A%2F%2Fmedium.com%2F%40keithmcgivern%2Fthy-word-is-a-lamp-unto-my-feet-and-a-light-unto-my-path-psalm-119-105-ae7fa1e3bd0a&amp;psig=AOvVaw2CQZFqci53hzzCaUfX1i8g&amp;ust=1578021961975555
+Thy word is a lamp unto my feet, and a light unto my path.
+
+![](https://miro.medium.com/max/1080/1*cYauMjN9B74A5EIfsp-1zA.jpeg)
+
+https://www.youtube.com/watch?v=miNYyUd92eE 
